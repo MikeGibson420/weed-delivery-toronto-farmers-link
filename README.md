@@ -1,2 +1,1 @@
-# weed-delivery-toronto-farmers-link
-https://farmerslink.ca
+HaVE A GREAT DAY!
